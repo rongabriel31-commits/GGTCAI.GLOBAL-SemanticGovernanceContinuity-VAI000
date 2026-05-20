@@ -1,0 +1,2 @@
+# GGTCAI.GLOBAL-SemanticGovernanceContinuity-VAI000
+GGTCAI.GLOBAL-SemanticGovernanceContinuity-VAI000
